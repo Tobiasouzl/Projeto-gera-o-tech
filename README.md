@@ -1,1 +1,1 @@
-# Projeto-gera-o-tech
+# Projeto-geração-tech
